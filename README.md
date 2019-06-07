@@ -2,7 +2,7 @@
 
 ## Мотивация
 
-https://golos.io/@ropox/sign
+https://golos.id/@ropox/sign
 
 ## Параметры
 
